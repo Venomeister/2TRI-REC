@@ -1,1 +1,1 @@
-# 2TRI-REC
+# ResponsvidadeturmaA
